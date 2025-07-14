@@ -1,5 +1,4 @@
 👋 Hi, I’m @Retoris - polish IT student that have no idea about working in IT.
-  For now grinding basics projects to pass exams.
   All advices are welcomed! 🙃
 
 
