@@ -1,4 +1,4 @@
-👋 Hi, I’m @Retoris - polish IT student that have no idea about working in IT.
+👋 Hi, I’m @Retoris - IT student that have no idea about working in IT.
   All advices are welcomed! 🙃
 
 
