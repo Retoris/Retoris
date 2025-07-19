@@ -1,4 +1,4 @@
-👋 Hi, I’m @Retoris - IT student that have no idea about working in IT.
+👋 Hi, I’m @Retoris - IT student that have no idea about working in IT.Though interested in data science and developing languages like SQL, PHP, C++. 
   All advices are welcomed! 🙃
 
 
